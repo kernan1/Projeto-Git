@@ -4,7 +4,7 @@ Katarina Garen Nasus
 Quyiana
 Ahri
 
-Syndra
+Syndra-
 
 
 Sylas Morgana
